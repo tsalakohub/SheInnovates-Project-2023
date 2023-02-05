@@ -1,1 +1,1 @@
-# SheInnovates-Project-2023
+# SheInnovates Pick-a-Panther Project
